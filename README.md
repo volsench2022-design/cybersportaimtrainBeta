@@ -1,3 +1,4 @@
+<img width="995" height="782" alt="Screenshot 2026-01-22 161252" src="https://github.com/user-attachments/assets/a9f51c42-164e-4567-8c77-96c016a69b70" />
 
 
 # 🎯 Cyber Hunter 2026
